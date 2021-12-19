@@ -1,4 +1,4 @@
-[![W2HMUSICX](https://img.shields.io/badge/-%CA%9C%E1%B4%87x%E1%B4%8F%CA%80-yellowgreen)](https://t.me/SankiPublicEnjoy)
+[![W2HMUSICX](https://img.shields.io/badge/-%CA%9C%E1%B4%87x%E1%B4%8F%CA%80-yellowgreen)](https://t.me/w2hsupport)
 
 
 
